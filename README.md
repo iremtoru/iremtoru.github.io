@@ -1,2 +1,0 @@
-# iremtoru.github.io
-Blog
